@@ -12,3 +12,5 @@ The poor kid that got in some serious trouble for trusting the wrong people. Thi
 As Jesse Pinkman likes to say:
 
 > Bitch!
+
+<img src="https://i.pinimg.com/236x/25/ed/2a/25ed2a040ec20ec8437dfd66a6046319--breaking-bad-jesse-jesse-pinkman.jpg"/>
