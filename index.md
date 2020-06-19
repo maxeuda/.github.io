@@ -8,3 +8,7 @@ The poor kid that got in some serious trouble for trusting the wrong people. Thi
 * stays true to himself
 * naive
 * expects other people to be as integer as himself - which often causes drama
+
+As Jesse Pinkman likes to say:
+
+> Bitch!
